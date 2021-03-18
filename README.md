@@ -1,1 +1,2 @@
-# 6701190104-assessment1pwb
+Nama Yeremia Andreas Purba
+NIM 6701190104
